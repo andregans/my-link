@@ -1,0 +1,1 @@
+# malas buat readme xd
